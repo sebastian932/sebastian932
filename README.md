@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning to program in many languages
 - 💞️ I’m looking to collaborate on nothing yet
 - 📫 How to reach me: send email to sebysebi934@gmail.com
-- 😄 Pronouns: wtf are pronouns/i dont give an F
+- 😄 Pronouns: 'wtf are pronouns'/'i dont give an F'
 - ⚡ Fun fact: im actually not that stupid (=
 
 <!---
