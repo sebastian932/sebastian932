@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning to program in many languages
 - 💞️ I’m looking to collaborate on Logic Workbench
 - 📫 How to reach me: send email to sebysebi932@gmail.com
-- ⚡ Fun fact: im actually not THAT stupid (=
+- ⚡ Fun fact: im not actually THAT stupid (=
 
 <!---
 sebastian932/sebastian932 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
